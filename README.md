@@ -1,1 +1,1 @@
-# EggHockey
+# Migthy Ducks Hockey Leage
